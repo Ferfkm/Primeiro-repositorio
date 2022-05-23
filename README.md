@@ -1,1 +1,1 @@
-# Primerio-reposit-rio
+# Primerio-repositorio
